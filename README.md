@@ -7,8 +7,10 @@ Stats
 [![Matthew's GitHub stats](https://github-readme-stats.vercel.app/api?username=matvejsh17)](https://github.com/matthewsh17/github-readme-stats)  ![Matthew's GitHub stats](https://github-readme-stats.vercel.app/api?username=matvejsh17&theme=light&show_icons=true)
 
 About me
-  
-  
+  1. Enjoy developing games
+  2. Middle-level artist
+  3. Love 3d printin
+  4. Want to get education in USA
   
 Contact information
   1. email: matvejsh17@gmail.com
