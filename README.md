@@ -9,7 +9,7 @@ Stats
 About me
   1. Enjoy developing games
   2. Middle-level artist
-  3. Love 3d printin
+  3. Love 3d printing
   4. Want to get education in USA
   
 Contact information
@@ -17,7 +17,7 @@ Contact information
   2. telegram: @matvejsh17
 
 Social media
-  1. instagram: matvej17_
+  1. instagram: @matvej17_
 
 What I am listening right now
 
