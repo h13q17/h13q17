@@ -11,7 +11,7 @@ Contact information
   2. telegram: @matvejsh17
 
 Social media
-  1. instagram: @matvej17_
+  1. instagram: @h13q17
 
 What I am listening right now
 
