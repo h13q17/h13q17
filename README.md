@@ -10,8 +10,6 @@ Contact information
   1. email: matvejsh17@gmail.com
   2. telegram: @matvejsh17
 
-Social media
-  1. instagram: @h13q17
 
 What I am listening right now
 
