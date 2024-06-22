@@ -5,6 +5,7 @@
 Contact information
   1. email: matvejsh17@gmail.com
   2. telegram: @h13q17
+  3. CV(https://drive.google.com/file/d/10yjJwwEAA57WNqPCnjsFuxRZK2RYT1dN/view?usp=sharing)
 
 
 
